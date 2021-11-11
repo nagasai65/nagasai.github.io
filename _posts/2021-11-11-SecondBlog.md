@@ -6,7 +6,7 @@ categories:
 
 It is about today's task
 
-## About
+## Some thing like dairy
 
 Today I woke up at 10' O clock and got ready to attend Ajay sister's engagement in simhachalam. I and Naidu started on scooty, in the nearest petrol bunk we filled up with 150/- petrol. By 11' we reached the function hall and met our friends and Ajay's family. After some time they asked us to bring tea for the old man, we 3 went outside and pick that. later we wanted to eat food but the situation is not supported, later they planned cake cutting, meanwhile, our office CEO and CTO anna's came here and we go for pics, later we are happy to take food. Items are tasty. After that, we had a conflict with the pan guy, even though there have pans he wasn't giving us, somehow I got two and gave those to my CTO anna. Finally, we come back to the room.
 
