@@ -1,10 +1,10 @@
 ---
 title: "Third blog"
-date: 2021-11-11
+date: 2021-11-12
 categories:
 ---
 
-It is about today's task
+My favourite trip
 
 ## Favourite trip
 
